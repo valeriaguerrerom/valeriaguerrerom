@@ -1,4 +1,4 @@
-# REPOSITORIO EN CONSTRUCCIÓN 👋
+# valeriaguerrerom REPOSITORY👋💻
 # 💫 About Me:
 🔭 Civil engineer<br>⚡ Systems engineering in training<br>🤝 Researcher<br><br>
 
